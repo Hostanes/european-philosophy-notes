@@ -46,7 +46,7 @@ Only a government that posses all the **"essential rights of sovereignty"** can 
 Similarly, to impose limitation on the authority of the government is to invite irresoluble disputes over whether it has overstepped those limits. If each person is to decide for herself whether the government should be obeyed, factional disagreement—and war to settle the issue, or at least paralysis of effective government—are quite possible.
 
 ---
-### Criticisms
+### Criticisms [INCOMPLETE]
 
 **Of the state of nature:**
 
